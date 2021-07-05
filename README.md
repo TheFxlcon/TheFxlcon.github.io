@@ -1,1 +1,1 @@
-# Cock
+I am idiot
